@@ -1,1 +1,1 @@
-get faster and sharper ^_^
+KISS
